@@ -1,2 +1,0 @@
-RAJESH
-AKHILA
